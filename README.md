@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+I'm not just a Gamer, I'm a ~Gamer Girl~ 
 <!--
 **Lingchow111/Lingchow111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
